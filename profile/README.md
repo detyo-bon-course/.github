@@ -1,5 +1,5 @@
 ---
-title: "🌟 Get Detyo Bon Course FREE Download + Instagram Growth Secrets! (Join Telegram Now)"
+ "🌟 Get Detyo Bon Course FREE Download + Instagram Growth Secrets! (Join Telegram Now)"
 ---
 
 ## **🔍 Why Detyo Bon’s Instagram Course is a Must-Have**  
